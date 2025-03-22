@@ -5,4 +5,4 @@ Eden Willow, an omega of the Silver Moon pack gets rejected by her mate at a bir
 
 <h2>How to Read Novel</h2>
 
-<a href="https://play.google.com/" target="_blank" rel="noopener">Link</a>
+<a href="https://gilaread.com/ads" target="_blank" rel="noopener">Link</a>
