@@ -9,5 +9,4 @@ Lying on the operating table, Grace overheard their conversation, and the truth 
 
 However, in her absence, Antonio and Alaric gradually realized their mistakes. In an effort to atone, Antonio even donated his own kidney to her. But by then, Grace had already lost all faith in them. Determined to seek justice, she took legal action and ultimately sent Antonio to prison.
 
-<h2>How to Read Novel</h2>
-<a href="https://play.google.com/store/apps/details?id=com.zhangyue.read" target="_blank" rel="noopener">Link</a>
+<a href="https://gilaread.com/ads" target="_blank" rel="noopener">Read Online</a>
